@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Mr-Prlnce
+- 👀 I’m interested in learning new coding languages
+- 🌱 I’m currently learning XML
+- 💞️ I’m looking to collaborate on anything really
+- 📫 How to reach me 73pattywatty91@gmail.com
